@@ -1,0 +1,1 @@
+this project is still in devlopment you can play with it the idea of automation is truly fasinating to me will be updating with real life application of this version soon enough 
